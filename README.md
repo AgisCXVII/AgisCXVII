@@ -7,7 +7,7 @@ It exists to host finished recordings, excerpts, and related notes.
 
 ## Featured Work
 
-The Outsider – H. P. Lovecraft  
+The Outsider - H. P. Lovecraft  
 A full narration recorded with a restrained, unembellished delivery.
 
 The King in Yellow - Robert W. Chambers
