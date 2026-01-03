@@ -11,7 +11,7 @@ The Outsider – H. P. Lovecraft
 A full narration recorded with a restrained, unembellished delivery.
 
 The King in Yellow - Robert W. Chambers
-First narration recorded in 2020.
+An early narration recorded in 2020.
 
 ## Focus
 - Literary narration
